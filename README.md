@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @nobleLXY
+- 👋 Hi, I’m luxuanyi, 🇨🇳
 - 👀 I’m 19 years old
